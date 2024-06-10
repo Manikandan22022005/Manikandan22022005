@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Manikandan22022005
 - 👀 I’m interested in Designing 
 - 🌱 I’m currently learning B.Tech.Artificial Intelligence and Data Science 
-- 📫 How to reach me through my LinkedIn profile(https://www.linkedin.com/in/manikandan-baskarraj-a6124a25a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- 📫 How to reach me through my LinkedIn profile(https://www.linkedin.com/in/manikandan-baskarraj-19b3a2312?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 😄 Pronouns:He
 - ⚡ Fun fact: I don't like coding 
 
